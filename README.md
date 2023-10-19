@@ -1,1 +1,1 @@
-# devops-real-time-cicd-for-pro-main.shwe will all get very good jobs before january 2024, In Jesus name!
+all devops engineers must follow devops secutity best practice for in order to meet the fintech standard
